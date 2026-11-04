@@ -22,4 +22,7 @@ I Specifically picked the correct items and not those are overpriced cause iam n
 11. JST Connectors ----- [https://amzn.in/d/011IKFB8](https://amzn.in/d/011IKFB8)
 12. OFF\ON switch ----- https://amzn.in/d/06lDhGcK
 
+    AND if u want to contact me DM me at SLACK println_sohan!!!
+    THANKS!!!!!!!!!!!!!!
+
 
